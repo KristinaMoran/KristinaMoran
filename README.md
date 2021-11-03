@@ -2,4 +2,4 @@
 - 👀 I’m interested in coding but also cooking, books, crochet, sewing, positive mental health
 - 🌱 I’m currently learning that debugging and trouble shooting is key!
 - 💞️ I’m looking to collaborate on nothing until Bootcamp is over
-- 📫 How to reach me Twitter @kristinamoran
+- 📫 How to reach me Twitter @kristinamoran22
